@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **harshsandilya09@gmail.com**
 
-- 📄 Know about my experiences [https://tinyurl.com/HarshsandilyaResume](https://tinyurl.com/HarshsandilyaResume)
+- 📄 Know about my experiences [[https://](https://harsh.nexxigital.com/)
 
 - ⚡ Fun fact **I think I can be also a standup comedian**
 
